@@ -1,16 +1,16 @@
 
-# Teste Job Rotation - Ribeirão Preto 
+# Teste - Target - Job Rotation - Ribeirão Preto 
 
-Portfólio de Respostas do Teste da Empresa Job Rotation
-Olá e bem-vindo ao meu portfólio de respostas do teste da Empresa Job Rotation!
+Portfólio de Respostas do Teste da Empresa Target
+Olá e bem-vindo ao meu portfólio de respostas do teste da Empresa Target!
 
 Este portfólio contém as respostas que forneci durante o teste de perguntas da Empresa Job Rotation. O teste foi projetado para avaliar minhas habilidades e conhecimentos na área específica de interesse da empresa.
 
 As respostas estão organizadas em um formato claro e conciso, apresentando minhas soluções para as perguntas propostas. Cada resposta foi elaborada com base em meu conhecimento e experiência, demonstrando meu pensamento lógico, habilidades de resolução de problemas e capacidade de comunicação.
 
-Quero ressaltar que todas as respostas apresentadas neste portfólio são originais e foram desenvolvidas por mim. Não foram utilizadas quaisquer formas de plágio ou fraude durante o teste, em conformidade com a política da Empresa Job Rotation.
+Quero ressaltar que todas as respostas apresentadas neste portfólio são originais e foram desenvolvidas por mim. Não foram utilizadas quaisquer formas de plágio ou fraude durante o teste, em conformidade com a política da Empresa Target.
 
-Agradeço pela oportunidade de participar do teste da Empresa Job Rotation e pela revisão deste portfólio de respostas. Estou à disposição para fornecer mais informações ou detalhes sobre as respostas apresentadas, se necessário.
+Agradeço pela oportunidade de participar do teste da Empresa Target e pela revisão deste portfólio de respostas. Estou à disposição para fornecer mais informações ou detalhes sobre as respostas apresentadas, se necessário.
 
 Atenciosamente,
 
